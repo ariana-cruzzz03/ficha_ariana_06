@@ -1,0 +1,1 @@
+# ficha_ariana_06
